@@ -6,4 +6,4 @@ Aliffer
 Jorge
 
 Link do video de apresentação primeiro bimestre:
-
+https://youtu.be/2qA3MjsVVvc
